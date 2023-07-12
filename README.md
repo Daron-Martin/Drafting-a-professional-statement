@@ -1,3 +1,3 @@
-# Drafting-a-professional-statement
+# Professional-statement
 
-# Your professional statement is your opportunity to show prospective employers who you are as a person and potential employee, and it allows them to understand the value you can bring to the organization.
+# A professional statement is an opportunity to show prospective employers who you are as a person and potential employee, and it allows them to understand the value you can bring to the organization.
